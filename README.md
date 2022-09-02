@@ -5,3 +5,4 @@ Watch shows/anime :popcorn:
 Learning new things and playing with software
 Would love to visit Japan
 Doing random projects on here :smile:
+ummm. Don't got much left
